@@ -5,6 +5,10 @@
 
 - 👯 I’m looking to collaborate on **Things in medical science and other**
 
+- :memo: I have an interest in video and photo editing
+
+- :headphones: I also love to listening a music 
+
 - 📫 How to reach me **mercyashani44@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
